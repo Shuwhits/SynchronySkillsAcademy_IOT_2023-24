@@ -9,6 +9,6 @@ Instructors: Mohameth Seck, William Horowitz
 
 For being the best instructors and guided me throughout the entire IOT process! 
 
-All DAE amd Synchrony Staff
+All DAE and Synchrony Staff
 
 For supporting me during my second year at Synchrony Skills Academy. 
